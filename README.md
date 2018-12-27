@@ -8,3 +8,4 @@ soffro di handicap gravi e non riesco a fare niente
 ok
 - The Dark Fucking Lord.
 - Wendy.
+- Maurizia e Arnalda.
